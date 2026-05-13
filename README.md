@@ -1,4 +1,4 @@
-<p align="center">᭢꤬ <a href="https://rentry.co/profnax">YUME RENTRY</a> • <a href="https://anaxa.straw.page/">STRAWPAGE</a> • <a href="https://secco.atabook.org">ATABOOK</a> <br> 
+<p align="center">᭢꤬ <a href="https://rentry.co/profnax">YUME RENTRY</a> • <a href="https://anaxa.straw.page/">STRAWPAGE</a> • <a href="https://gyro.atabook.org">ATABOOK</a> <br> 
   <img width="50%" src="https://64.media.tumblr.com/1795487d9e970f786bd373c6f291f369/ce1165a336f525f6-6a/s640x960/ea204193899906733243ffd7bf5b4da613ac3c16.gifv">
 </p>
 <p align="center">
