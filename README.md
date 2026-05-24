@@ -3,7 +3,7 @@
 </p>
 <p align="center">
   <img width="2%" src="https://64.media.tumblr.com/171e02ce35e187409cb855133e31e1e5/8b13d22fcba1d91c-23/s540x810/72793b52f25e1746e8db9f5915a71da4019d5168.pnj">
-<b>19 years old. <b>♀</b> Italian. read rentry(s)! inspo is ok, but don't straight up copy my ponies pl..s. </b>basic dni critera + anaxa yumes iwc...(do NAWT think I'm dating a fictional character. I do oc x canons for funs. #Lesbian)<br>  
+<b>19 years old. <b>♀</b> Italian. read rentry(s)! inspo is ok, but don't straight up copy my ponies pl..s. </b>basic dni critera + anaxa yumes iwc. (do NAWT think I'm dating a fictional character. I'm #WLW hi ladies. I just do oc x canons for funs.)<br>  
 </p>
 
 <p align="center"><img width="15%" src="https://64.media.tumblr.com/02366a326be18466823f01c6035b9ac6/8b13d22fcba1d91c-06/s100x200/4967438216e631a5b6cfd9ee45052c1173d1212d.pnj"><img width="15%" src="https://64.media.tumblr.com/25f81697d06ad7be0f319eacddd57832/8b13d22fcba1d91c-09/s100x200/ffad3d4e1d80718acc4fd1f896ee3c1d37277f81.pnj"></p>
